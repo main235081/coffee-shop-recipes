@@ -12,7 +12,7 @@
 
 ### Step 1
 
-- Stirring occasionally, toast hazelnuts in a pan on medium heat for about 4 minutes or until aromatic.
+- Stirring occasionally, toast hazelnuts in a pan on medium heat for about 4 minutes or until aromatic. Make sure to use raw hazelnut
 
 ### Step 2
 
