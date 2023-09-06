@@ -16,7 +16,7 @@
 
 ### Step 2
 
-- Combine all ingredients in a small saucepan over medium-high heat.
+- Combine all ingredients in a small saucepan over medium-high heat. Be cautious not to heat the pan too much.
 
 ### Step 3
 
