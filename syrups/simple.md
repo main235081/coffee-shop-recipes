@@ -15,7 +15,7 @@
 
 ### Step 2
 
-- Bring the mixture to a boil. Reduce heat to medium and simmer until thickened,  about 10 minutes.
+- Bring the mixture to a boil. Reduce heat to medium and simmer until thickened,  about 20 minutes.
 
 ### Step 3
 
